@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Masvord
+- 👋 Hi, I’m Fatih, 
 - 🌱 I’m currently learning whatever ı find
 
 <!---
